@@ -1,0 +1,2 @@
+# Terayakor
+Diladeolpoll poor
